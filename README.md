@@ -1,0 +1,1 @@
+# task-1-variant-6
